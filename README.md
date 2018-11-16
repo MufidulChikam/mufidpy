@@ -1,1 +1,1 @@
-## Static Page https://mufidulchikam.com
+## Static Page https://www.mufidulchikam.com
