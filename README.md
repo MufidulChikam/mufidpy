@@ -1,1 +1,1 @@
-## Static Page https://lombokpy.github.io/docs/index.html
+## Static Page https://mufidulchikam.com
